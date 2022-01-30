@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @svkkrish
+- 👀 I’m interested in developing
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on developing people
+- 📫 How to reach me svkrishnan1999@gmail.com  7598650195 whatsapp
